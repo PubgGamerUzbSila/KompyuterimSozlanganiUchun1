@@ -1,0 +1,1 @@
+# KompyuterimSozlanganiUchun1
